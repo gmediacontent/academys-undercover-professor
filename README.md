@@ -1,1 +1,4 @@
-# academys-undercover-professor
+# Academy’s Undercover Professor
+Je ne suis pas né avec un talent ou une capacité, mais au moins mes connaissances terrestres m’ont permis de garder une longueur d’avance dans cet autre monde.
+
+La magie existe ici, et de nouveaux progrès étaient rapidement réalisés dans le domaine de la science tandis que la magie stagnait au nom de la tradition. En utilisant mes connaissances terrestres et sans être lié par la pensée traditionnelle, j’ai pu faire des choses que les autres sorciers ne pouvaient même pas imaginer. Pourtant, devenir par inadvertance un professeur sous couverture pour une mystérieuse société secrète à la célèbre académie de Sören n’a jamais été dans ma liste de choses à faire !
